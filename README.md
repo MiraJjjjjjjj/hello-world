@@ -6,4 +6,4 @@ Hello readers.
 My name is Mira. I am quick in response and swift in action within the split of a second.
 
 " iute la manie si degraba varsatoriu de sange "
-                                          - when asked about Mihai the Brave
+                                          - Grigore Ureche, Letopisetul Tarii Moldovei
